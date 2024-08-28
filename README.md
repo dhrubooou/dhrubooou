@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **dhrubojyoti73@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/feed/update/urn:li:activity:7194470824437768192/](https://www.linkedin.com/feed/update/urn:li:activity:7194470824437768192/)
+- 📄 Know about my experiences [(https://www.linkedin.com/in/dhrubojyoti-bhattacharjee-283271255/)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
